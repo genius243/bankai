@@ -1,2 +1,2 @@
 # bankai
-bankai katen kyokaratsu 
+bankai katen kyokaratsu sombun sakura
